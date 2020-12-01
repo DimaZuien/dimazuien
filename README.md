@@ -3,5 +3,5 @@ I'm currently working for [Eastern Peak](https://easternpeak.com/). You can find
 
 Reach me:
 - [email](mailto:dimazuien@gmail.com)
+- [Telegram](https://t.me/dimazuien)
 - [LinkedIn](https://www.linkedin.com/in/dimazuien/)
-- [Telegram](t.me/dimazuien)
