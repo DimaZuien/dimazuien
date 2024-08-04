@@ -1,4 +1,4 @@
-I'm currently working for [Capgemini Engineering](https://www.capgemini-engineering.com.ua). You can find my CV [here](https://docs.google.com/document/d/14YWIWuwvwuLKm4gViF2iv3aW4Huy8ciUOvLErNgs79E/edit?usp=sharing).
+I work at [Nuvola](https://nuvola.net/). You can find my CV [here](https://docs.google.com/document/d/14YWIWuwvwuLKm4gViF2iv3aW4Huy8ciUOvLErNgs79E/edit?usp=sharing).
 
 
 Reach me:
